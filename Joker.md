@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Joker
+- 💀 I like to see the world getting destroyed
+- 👀 I’m interested in ethical hacking
+- 🌱 I’m currently learning ethical hacking programming tools
+- 💞️ I'm currently helping others to learn C Language by sharing them my projects so you can check out my projects
+- 📫 How to reach me by jumping near to a truck or By hanging in the rope
